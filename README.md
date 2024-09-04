@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kivika6
+- 👀 I’m interested in literature, history, sport and coding
+- 🌱 I’m currently learning python
+- 😄 Pronouns: she\her
+- ⚡ Fun fact: keen on monkey
